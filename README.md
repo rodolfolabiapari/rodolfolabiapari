@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-More about me, [here](https://rodolfolabiapari.github.io).
+More about me, [here at rodolfolabiapari.github.io](https://rodolfolabiapari.github.io) 🎈.
 
 <div align="center">
   <a href="https://github.com/rodolfolabiapari">
